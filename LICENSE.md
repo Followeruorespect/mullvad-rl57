@@ -1,4 +1,4 @@
-
+Enhance your Mullvad experience with smart Mullvad Client | tracker-blocker + malware-blocker, the #1 client. Includes tracker-blocker and malware-blocker for a safer and more
 
 
 
